@@ -44,7 +44,7 @@ Insight
 •	Most Order Gender category from Adult Women Category. We can say that Our prime Customer is Women.
 •	Amazon, Flipkart and Myntra channels are max contributing by —80%
 
-Adult age group (30-49 yrs) is max contributing (—50%)
+Adult age group (30-49 yrs) is max contributing by 50%
 
 Final Conclusion to improve Vrinda store sales-----
 
